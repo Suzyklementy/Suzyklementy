@@ -4,7 +4,7 @@ I'm 14.
 
 I'm beginner and amateur in  programing.
 I'm learning C#, Python and WebSite's Frontend. (I am student of "Giganci Programowania")
-I'm intresting in seciurity and gamedev.
+I'm interesting in security and gamedev.
 I've never done a bigger project yet! But I want, so if you have an idea you can write to me.
 
 Apart of programing My Hobbys are automotive, motorsport, bikes (MTB) and weapone smith.

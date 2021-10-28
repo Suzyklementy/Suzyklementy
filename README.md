@@ -1,5 +1,6 @@
 Hi, I'm Suzyklementy but call me Suzy. 
-I'm 14
+I'm from Poland.
+I'm 14.
 
 I'm beginner and amateur in  programing.
 I'm learning C#, Python and WebSite's Frontend. (I am student of "Giganci Programowania")

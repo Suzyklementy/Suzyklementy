@@ -13,7 +13,7 @@ Apart of programing My Hobbys are automotive, motorsport, bikes (MTB) and gunsmi
 Contact:
 
 Instagram: "https://www.instagram.com/suzyklementy/"
-Disord: "blask#0685"
+Disord: "Suzy#2938"
 
 My electronic signature:
 
